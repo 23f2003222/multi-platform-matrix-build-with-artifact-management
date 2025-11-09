@@ -1,1 +1,1 @@
-23f2003222@sd.study.iitm.ac.in
+23f2003222@ds.study.iitm.ac.in
